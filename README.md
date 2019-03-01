@@ -6,3 +6,4 @@ i add sugar
 i made the batter
 i add vanila 
 i add bateer to cake tin.
+put it in the oven.
