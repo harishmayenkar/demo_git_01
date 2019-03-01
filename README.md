@@ -7,3 +7,4 @@ i made the batter
 i add vanila 
 i add bateer to cake tin.
 put it in the oven.
+i need to keep it for 20 min.
